@@ -1,6 +1,6 @@
 Fintech Software Engineers: Driving the Digital Transformation of Finance
 
-https://medium.com/@aristosourcing/fintech-software-engineers-driving-the-digital-transformation-of-finance-a29d34d178f3
+(https://medium.com/@aristosourcing/fintech-software-engineers-driving-the-digital-transformation-of-finance-a29d34d178f3) /by Artistosourcing
 
 ## Why it's interesting
 
